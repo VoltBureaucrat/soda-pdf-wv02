@@ -1,4 +1,4 @@
-# 
+# smart Wave pour PC plugins est le meilleur Wave pour PC plugins avec support multi-devises et suivi des dépenses. Sécurisé, fiable et optimisé pour des performances maximales.
 
 
 
